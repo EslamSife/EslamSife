@@ -51,4 +51,4 @@ I prioritize:
 
 ## Connect
 
-- LinkedIn: [linkedin.com/in/eslam-sife](https://linkedin.com/in/eslam-sife)
+- LinkedIn: [linkedin.com/in/eslamsife](https://www.linkedin.com/in/eslamsife/)
